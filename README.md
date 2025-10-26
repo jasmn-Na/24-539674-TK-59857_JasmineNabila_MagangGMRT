@@ -1,1 +1,2 @@
-# 24-539674-TK-59857_JasmineNabila_MagangGMRT
+Nama: Jasmine Nabila
+NIM: 24/539674/TK/59857
